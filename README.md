@@ -5,4 +5,4 @@ this is a insane bot by CB HUB
 
 thanks 
 give a sub to my channel pleez xD
-![standard (30)](https://user-images.githubusercontent.com/90743706/133372916-fe81eaba-3fcd-47a9-b478-d92a18783e23.gif)
+![standard (31)](https://user-images.githubusercontent.com/90743706/133373012-97ef0662-449c-49a1-b741-a6fd49ee4e88.gif)
